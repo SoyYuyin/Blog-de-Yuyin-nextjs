@@ -1,6 +1,19 @@
 @tailwind base;
 
 /* Write your own custom base styles here */
+.markdown img {
+  display: block;
+  margin-left: 25%;
+  background-color: pink;
+  border: 2 solid black;
+}
+
+blockquote {
+  margin-left: 2rem;
+  border-left: 1.5rem solid gray;
+  padding-left: 1rem;
+  font-size: 1.5rem;
+}
 
 /* Start purging... */
 @tailwind components;

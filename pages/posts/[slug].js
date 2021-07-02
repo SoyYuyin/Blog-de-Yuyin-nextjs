@@ -24,10 +24,11 @@ export default function Post({ post, morePosts, preview }) {
           <PostTitle>Loading…</PostTitle>
         ) : (
           <>
-            <article className="mb-32">
+            <article className="mb-32 markdown" >
               <Head>
                 <title>
-                  {post.title} | Next.js Blog Example with {CMS_NAME}
+                  {post.title} | Blog de Yuyin 
+                  {/* {post.title} | Blog de Yuyin {CMS_NAME} */}
                 </title>
                 <meta property="og:image" content={post.ogImage.url} />
               </Head>
@@ -46,24 +47,21 @@ export default function Post({ post, morePosts, preview }) {
   )
 }
 
+//https://www.theviewport.io/post/using-nextjs-and-nextimage-with-mdx-markdown-processing
 export async function getStaticProps({ params }) {
   const post = getPostBySlug(params.slug, [
-    'title',
-    'date',
-    'slug',
-    'author',
-    'content',
-    'ogImage',
-    'coverImage',
+    "title",
+    "date",
+    "slug",
+    "author",
+    "content",
+    "ogImage",
+    "coverImage",
   ])
-  const content = await markdownToHtml(post.content || '')
 
   return {
     props: {
-      post: {
-        ...post,
-        content,
-      },
+      post,
     },
   }
 }
