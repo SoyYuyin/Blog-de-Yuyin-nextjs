@@ -33,7 +33,8 @@ El 31 de diciembre del 2020 decidí que iba a comenzar a correr DIARIO en las ma
 
 Estaba empezando el 2021 con todo el power.
 
-![caminando abrigado en la neblina](/assets/blog/deporte-como-estilo-de-vida/2021-01-03-early-walk.gif)
+![caminando abrigado en la neblina](https://github.com/SoyYuyin/Blog-de-Yuyin/blob/main/public/assets/blog/deporte-como-estilo-de-vida/2021-01-03-early-walk.gif?raw=true)
+
 
 ## No tengas miedo solo es dolor.
 
