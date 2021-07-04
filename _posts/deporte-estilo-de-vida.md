@@ -80,7 +80,9 @@ La idea de viajar a un lugar chidito con amigos para participar en un evento es 
 
 ## Un salto de fe.
 
-La razón principal de por qué escribo esto es para alentarte a tí que estas leyendo esto a que adoptes el deporte como estilo de vida, y te conviertas en una mejor versión de tí mismo. (O si ya haces deporte, a que sigas haciéndolo.) El detalle aquí es que muy probablemente leer esto no sea suficiente para convencerte a hacerlo. Como ha sido estudiado en la neurociencia, cambiar nuestros pensamientos muchas veces no es suficiente para cambiar nuestros comportamientos. La solución es comenzar con la acción. La acción cambiará nuestras emociones y a su vez nuestros pensamientos. 
+La razón principal de por qué escribo esto es para alentarte a tí que estas leyendo esto **NO** a que adoptes el deporte como estilo de vida, pero simplemente a que hagas deporte. (O si ya haces deporte, a que sigas haciéndolo.) No es necesario que hagas el gran compromiso de "adoptar el deporte como estilo de vida". (Ahora que lo escribo me doy cuenta que debería cambiar el título.) De todas formas, no esta claro que significa "adoptar el deporte como estilo de vida" pero suena como algo comprometedor y dificil. No tienes que hacerlo así, basta con hacer **algo** que te mueva, comienza con una actividad pequeña la cuál estes dispuesto a repetir de manera constante. El progreso incremental hará el resto. 
+
+El detalle aquí es que muy probablemente leer esto no sea suficiente para convencerte a hacerlo. Como ha sido estudiado en la neurociencia, cambiar nuestros pensamientos muchas veces no es suficiente para cambiar nuestros comportamientos. La solución es comenzar con la acción. La acción cambiará nuestras emociones y a su vez nuestros pensamientos. 
 
 Para que experimentes tu también la gran satisfacción que resulta de hacer deporte, tienes que vencer la barrera de resistencia que supone ponerte los tenis y salir por la puerta. Sin pensarle demasiado. No esperes tener claro en tu cabeza todo lo que conlleva hacerlo. Deja de cuestionarlo todo, solo hazlo y mantén el impulso. 
 
