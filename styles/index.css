@@ -4,7 +4,7 @@
 .markdown img {
   display: block;
   margin-left: 25%;
-  background-color: pink;
+  /* background-color: pink; */
   border: 2 solid black;
 }
 
