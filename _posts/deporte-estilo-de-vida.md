@@ -61,7 +61,7 @@ Después de una corrida en la fría madrugada o en el *picante* sol del mediodia
 
 ### Estructúrate
 
-El deporte a traído consigo la necesidad de establecer una rutina. Ahora en epoca de COVID donde ahora mi cuarto también es mi oficina, las libertades y a su vez las responsabilidades han aumentado. Ahora puedes despertarte 5 minutos antes de tu hora de entrada y hacer *"check-in"* desde tu cama. Irónicamente despertarme más temprano para correr 5km se ha convertido en todo un ritual vigorizante. Tengo que planear a que hora voy a correr, de manera colateral acelera mis otras tareas y me mantenerme enfocado para asegurarme de que **haré tiempo para salir a correr.** Tambíen tengo que dormir temprano para poder correr al día siguiente.
+El deporte a traído consigo la necesidad de establecer una rutina. Ahora en epoca de COVID donde ahora mi cuarto también es mi oficina, las libertades y a su vez las responsabilidades han aumentado. Ahora puedes despertarte 5 minutos antes de tu hora de entrada y hacer *"check-in"* desde tu cama. Irónicamente despertarme más temprano para correr 5km se ha convertido en todo un ritual vigorizante. Tengo que planear a que hora voy a correr, de manera colateral acelera mis otras tareas y me mantiene enfocado para asegurarme de que **haré tiempo para salir a correr.** Tambíen tengo que dormir temprano para poder correr al día siguiente.
 
 > El tiempo no lo encuentras, lo haces.
 
