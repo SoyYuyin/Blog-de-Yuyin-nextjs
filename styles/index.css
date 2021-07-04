@@ -15,6 +15,10 @@ blockquote {
   font-size: 1.5rem;
 }
 
+.markdown a {
+  text-decoration: underline;
+}
+
 /* Start purging... */
 @tailwind components;
 /* Stop purging. */
