@@ -80,7 +80,9 @@ La idea de viajar a un lugar chidito con amigos para participar en un evento es 
 
 ## Un salto de fe.
 
-La razón principal de por qué escribo esto es para alentarte a tí que estas leyendo esto **NO** a que adoptes el deporte como estilo de vida, pero simplemente a que hagas deporte. (O si ya haces deporte, a que sigas haciéndolo.) No es necesario que hagas el gran compromiso de "adoptar el deporte como estilo de vida". (Ahora que lo escribo me doy cuenta que debería cambiar el título.) De todas formas, no esta claro que significa "adoptar el deporte como estilo de vida" pero suena como algo comprometedor y dificil. No tienes que hacerlo así, basta con hacer **algo** que te mueva, comienza con una actividad pequeña la cuál estes dispuesto a repetir de manera constante. El progreso incremental hará el resto. 
+La razón principal de por qué escribo esto es para alentarte a tí que estas leyendo esto **NO** a que adoptes el deporte como estilo de vida, pero simplemente a que hagas deporte. (O si ya haces deporte, a que sigas haciéndolo.) No es necesario que hagas el gran compromiso de "adoptar el deporte como estilo de vida". (Ahora que lo escribo me doy cuenta que debería cambiar el título.) De todas formas, no esta claro que significa "adoptar el deporte como estilo de vida" pero suena como algo comprometedor y difícil. No tienes que hacerlo así, basta con hacer **algo** que te mueva, comienza con una actividad pequeña la cual estés dispuesto a repetir de manera constante. El progreso incremental hará cargo del resto. 
+
+>Todas las grandes cosas tienen pequeños comienzos.
 
 El detalle aquí es que muy probablemente leer esto no sea suficiente para convencerte a hacerlo. Como ha sido estudiado en la neurociencia, cambiar nuestros pensamientos muchas veces no es suficiente para cambiar nuestros comportamientos. La solución es comenzar con la acción. La acción cambiará nuestras emociones y a su vez nuestros pensamientos. 
 
