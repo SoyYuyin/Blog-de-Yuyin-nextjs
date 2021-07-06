@@ -40,9 +40,9 @@ Tendemos a definir a las personas o a nosotros mismos con adjetivos absolutos co
 
 Me surgen varios problemas con esto, uno siendo que no esta claro cuando empezamos o dejamos de "ser" algo. 
 
-Por ejemplo, *tengo el sueño de ser youtuber*. ¿Qué significa exactamente? ¿Cuándo sabré que lo he logrado? ¿Soy entonces youtuber cuándo abro mi canal de youtube y subo un video o hasta que alcanzo un número específico de suscriptores?, ¿Será que solo soy "youtuber" al obtener la placa de Youtube de 100,000 / 100,000,000 suscriptores? ¿Qué pasa si Youtube desaparece?
+Por ejemplo, *tengo el sueño de ser youtuber*. ¿Qué significa exactamente? ¿Cuándo sabré que lo he logrado? ¿Soy entonces youtuber cuándo abro mi canal de youtube y subo un video o hasta que alcanzo un número específico de suscriptores?, ¿Será que solo soy youtuber al obtener la placa de Youtube de 100,000 / 100,000,000 suscriptores? ¿Qué pasa si Youtube desaparece?
 
-Definir nuestra identidad con una etiqueta absoluta nos encasilla y puede alejarnos de comenzar de nuevo o por primera vez alguna actividad. 
+Definir nuestra identidad con una etiqueta absoluta nos encasilla y puede alejarnos de comenzar de nuevo o por primera vez alguna *actividad* (por no decir "perseguir un sueño"). 
 
 Volviendo al deporte; yo digo que, todos somos deportistas es solo que algunos estamos más oxidados que otros. Es cuestión de retomarlo con humildad. No pienses que no es algo para tí. Como cualquier cosa, al principio vamos a ser lentos, seguramente al principio si salimos a correr por primera vez no llegaremos muy lejos. Pero debemos estar dispuestos a ser los novatos, a comenzar desde abajo y a no desanimarnos al cometer errores como cualquier principiante. Si no puedes correr, como yo no pude, caminar es otra opción que no debemos subestimar. De hecho si no corres habitualmente yo recomiendo que empieces caminando un par de semanas, no es tan glamuroso pero es efectivo. 
 
@@ -75,17 +75,17 @@ Es como una máquina expendidora en la que yo le meto sacrificio y esfuerzo y a 
 
 No me refiero a que te vuelves más saludable, aunque eso también es cierto. 
 
-Cuando acabé mi carrera universitaria y entré a trabajar, al principio me abrumé porque parecía como si el trabajo fuera a ser lo que iba a ser por el resto de mis días. 
+Cuando acabé mi carrera universitaria y entré a trabajar, al principio me abrumé porque parecía como si el trabajo era ahora lo que iba a ser por el resto de mis días. 
 
-Mi rutina basicamente en ese momento era: ir a trabajar, consumir dopamina barata (netflix/redes sociales/videojuegos), chelear el fin de semana y repetir. 
+Mi rutina básicamente en ese momento era: ir a trabajar, consumir dopamina barata (Netflix/redes sociales/videojuegos), chelear el fin de semana y repetir. 
 
-Como resultado me daban unas *"crisis existenciales"* y no dejaba de preguntarme, ¿Qué es esto??, ¿¡Dónde esta la salida!?
+Como resultado me daban unas *"crisis existenciales"* y no dejaba de preguntarme, ¿Qué es esto?, ¿¡Dónde esta la salida!?, ¿¡Qué más hay!?
 
 Estaba estancado. 
 
 Esa ansiedad que me perseguía era **el potencial dentro de mi siendo desperciado.**
 
-Correr en las mañanas, aprovechar las tardes para ir a nadar, y las mañanas en fines de semana para correr en el parque con mi novia han agregado una nueva dimensión a mi vida. El trabajo sin dejar de ser algo muy importante, ya no parece ocupar el escenario principal, ahora lo veo como una herramienta que me permite perseguir mis metas y creo que es la manera correcta de verlo. Ahora entiendo que no es requisito *"amar"* mi trabajo (aunque ayuda que lo disfrutes).
+Correr en las mañanas, aprovechar las tardes para ir a nadar, incluso las mañanas en fines de semana para correr en el parque con mi novia, han agregado una nueva dimensión a mi vida. El trabajo sin dejar de ser algo muy importante, ya no parece ocupar el escenario principal, ahora lo veo como una herramienta que me permite perseguir mis metas y creo que es la manera correcta de verlo. Ahora entiendo que no es requisito *"amar"* mi trabajo (aunque ayuda que lo disfrutes).
 
 He encontrado en el deporte un nuevo pilar que soporta y **enriquece** mi existencia. 
 
@@ -95,12 +95,12 @@ La idea de viajar a un lugar chidito con amigos para participar en un evento es 
 
 ## Un salto de fe.
 
-La razón principal de por qué escribo esto es para alentarte a tí que estas leyendo esto **NO** a que adoptes el deporte como estilo de vida, pero simplemente a que hagas deporte. (O si ya haces deporte, a que sigas haciéndolo.) No es necesario que hagas el gran compromiso de "adoptar el deporte como estilo de vida". (Ahora que lo escribo me doy cuenta que debería cambiar el título.) De todas formas, no esta claro que significa "adoptar el deporte como estilo de vida" pero suena como algo comprometedor y difícil. No tienes que hacerlo así, basta con hacer **algo** que te mueva, comienza con una actividad pequeña la cual estés dispuesto a repetir de manera constante. El progreso incremental hará cargo del resto. 
+La razón principal de por qué escribo esto es para alentarte a tí que estas leyendo esto **NO** a que adoptes el deporte como estilo de vida, pero simplemente a que hagas deporte. (O si ya haces deporte, a que sigas haciéndolo.) No es necesario que hagas el gran compromiso de "adoptar el deporte como estilo de vida". (Ahora que lo escribo me doy cuenta que debería cambiar el título.) De todas formas, no esta claro que significa "adoptar el deporte como estilo de vida" pero suena como algo comprometedor y difícil. No tienes que hacerlo así, basta con hacer **algo** que te mueva, comienza con una actividad pequeña la cual estés dispuesto a repetir de manera constante. El progreso incremental hará se cargo del resto. 
 
 >Todas las grandes cosas tienen pequeños comienzos.
 
 El detalle aquí es que muy probablemente leer esto no sea suficiente para convencerte a hacerlo. Como ha sido estudiado en la neurociencia, cambiar nuestros pensamientos muchas veces no es suficiente para cambiar nuestros comportamientos. La solución es comenzar con la acción. La acción cambiará nuestras emociones y a su vez nuestros pensamientos. 
 
-Para que experimentes tu también la gran satisfacción que resulta de hacer deporte, tienes que vencer la barrera de resistencia que supone ponerte los tenis y salir por la puerta. Sin pensarle demasiado. No esperes tener claro en tu cabeza todo lo que conlleva hacerlo. Deja de cuestionarlo todo, solo hazlo y mantén el impulso. 
+Para que experimentes tu también la gran satisfacción que resulta de hacer deporte, tienes que vencer la barrera de resistencia que supone ponerte los tenis y salir por la puerta. Sin pensarle demasiado. No esperes a tener claro en tu cabeza todo lo que conlleva hacerlo. Deja de cuestionarlo todo, solo hazlo y mantén el impulso. 
 
 > Si escuchas una voz en tu cabeza que dice "no puedes correr", entonces corre, y esa voz será silenciada.
