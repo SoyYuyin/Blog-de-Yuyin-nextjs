@@ -21,17 +21,16 @@ Estaba empezando el 2021 con todo el power.
     
 ## No tengas miedo solo es dolor.
 
-Habrían sido menos de 10 días y una mañana apenas y podía caminar. Mi ego sintió el golpe, ¿cómo es posible que mi cuerpo débil no aguante correr ni 10 días? Pues no. 
-
+Habrían sido menos de 10 días y una mañana apenas y podía caminar. Mi talón de aquiles anunciaba las consecuencias de mi gran ideota. Fue un gran golpe para mi ego, ¿cómo es posible que mi cuerpo débil no aguante correr ni 10 días? Pues no. 
 Según una googleada rapidita, si seguía corriendo podría romperme el tendón y sufrir una lesión mayor. Mi cuerpo estaba herido, pero la lucha era con mi mente, *"Ya ves? correr no es lo tuyo."*  Tenía la excusa perfecta para abortar la misión, *"esque mi cuerpo no aguantó."*
 
-Sentía que no podría cumplir mi promesa de correr diario. **Un fracaso más en la vida de Yuyin**. Sentía que me estaría traicionando por tener que abandonar otro objetivo pleantado por mi mismo. Yo había exclamado que saldría a correr DIARIO en las mañanas, y ahora parecía que no lo iba a lograr. En este punto cargaba una frustración terrible, ¿cómo es que estar haciendo algo productivo, algo bueno como salir a correr me este dañando de esta forma? Pensaba *"Ya no podré correr nunca más porque me va a estar doliendo el tendón."*
+Sentía que no podría cumplir mi promesa de correr diario. **Un fracaso más en la vida de Yuyin**. Sentía que me estaría traicionando por tener que abandonar otro objetivo pleantado por mi mismo. Yo había exclamado que saldría a correr DIARIO en las mañanas, y ahora parecía que no lo iba a lograr. Esto me causaba una frustración terrible, ¿cómo es que estar haciendo algo productivo, algo bueno como salir a correr me este dañando de esta forma? Pensaba *"Ya no podré correr nunca más porque me va a estar doliendo el tendón."*
 
 Fue una bofetada de humildad. Y aquí la importancia de **tener paciencia**. Entonces dije, vale no pasa nada, obviamente no he corrido en muchisimo tiempo y nunca de manera constante, mis articulaciones estan aguaditas y no estan acostumbradas al constante golpeteo con el pavimento. (Pues claro que no.)
 
-A veces las cosas no salen como esperamos, pero de ser necesario **hay que saber pivotear y cambiar la estrategia para poder seguir avanzando.** Gracias a mi tendonitis, tuve que relegarme a caminar,  pero **entonces había ganado.** Seguía despertando temprano y enfrentando el frio y oscuridad de las mañanas de enero. Seguía saliendo de mi zona de confort y eso era lo que realmente importaba. Estar poniendo el esfuerzo por mejorar. Me tomó unas 3 semanas de muchos masajes, bolsas de hielo y caminatas lentas, pero eventualmente me hice suficientemente fuerte para volver a correr todos los días. 
+A veces las cosas no salen como esperamos, pero de ser necesario **hay que saber pivotear y cambiar la estrategia para poder seguir avanzando.** Gracias a mi tendonitis, tuve que relegarme a caminar,  pero **entonces había ganado.** Seguía despertando temprano y enfrentando el frío y oscuridad de las mañanas de enero. Seguía saliendo de mi zona de confort y eso era lo que realmente importaba. Estar poniendo el esfuerzo por mejorar. Me tomó unas 3 semanas de muchos masajes, bolsas de hielo y caminatas lentas, pero eventualmente me hice suficientemente fuerte para volver a correr todos los días. 
 
-Ahora, al 1º de julio 2021, han transcurrido 181 días del año y tengo 114 corridas registradas en [Strava](https://www.strava.com/athletes/soyyuyin). Considerando que abrí mi cuenta de [Strava](https://www.strava.com/athletes/soyyuyin) hasta el 29 de enero (hace 153 días), me parece un rotundo éxito. Sí, tal vez no son 153 corridas de 153 días transcurridos, pero es más que de lo que he corrido en toda mi vida. **Se siente bien ser consistente día tras día.** Ver como me hago más fuerte, cada vez más rápido o el poder llegar más lejos brinda una gran satisfacción y así es que me clavo más al deporte. Ademas de correr en las mañanas he comenzado a nadar en las tardes, llevo unas 3 semanas nadando como 4-5 días a la semana. Pero eso es una historia para otro día. Solo para aclarar, también tengo un trabajo formal como cualquier persona.
+Ahora, al 1º de julio 2021, han transcurrido 181 días del año y tengo 114 corridas registradas en [Strava](https://www.strava.com/athletes/soyyuyin). Siendo que abrí mi cuenta de [Strava](https://www.strava.com/athletes/soyyuyin) hasta el 29 de enero (hace 153 días), lo considero un rotundo éxito. Sí, tal vez no son 153 corridas de 153 días transcurridos, pero es más que de lo que he corrido en toda mi vida. **Se siente bien ser consistente día tras día.** Ver como me hago más fuerte, cada vez más rápido o el poder llegar más lejos brinda una gran satisfacción y así es que me clavo más al deporte. Ademas de correr en las mañanas he comenzado a nadar en las tardes, llevo unas 3 semanas nadando como 4-5 días a la semana. Pero eso es una historia para otro día. Solo para aclarar, también tengo un trabajo formal como cualquier persona.
 
 ## Todos somos deportistas 
 
@@ -41,17 +40,17 @@ Tendemos a definir a las personas o a nosotros mismos con adjetivos absolutos co
 
 Me surgen varios problemas con esto, uno siendo que no esta claro cuando empezamos o dejamos de "ser" algo. 
 
-Por ejemplo, *tengo el sueño de ser youtuber*. ¿Qué significa exactamente? ¿Cuándo sabré que lo he logrado? ¿Soy entonces youtuber cuándo abro mi canal de youtube y subo un video o hasta que alcanzo un número específico de suscriptores?, ¿Será que solo soy "youtuber" al obtener la placa de Youtube de 100,000 / 100,000,000 suscriptores?
+Por ejemplo, *tengo el sueño de ser youtuber*. ¿Qué significa exactamente? ¿Cuándo sabré que lo he logrado? ¿Soy entonces youtuber cuándo abro mi canal de youtube y subo un video o hasta que alcanzo un número específico de suscriptores?, ¿Será que solo soy "youtuber" al obtener la placa de Youtube de 100,000 / 100,000,000 suscriptores? ¿Qué pasa si Youtube desaparece?
 
 Definir nuestra identidad con una etiqueta absoluta nos encasilla y puede alejarnos de comenzar de nuevo o por primera vez alguna actividad. 
 
-Volviendo al deporte; yo digo que, todos somos deportistas es solo que algunos estamos más oxidados que otros. Es cuestion de retomarlo con humildad. No pienses que no es algo para tí. Como cualquier cosa, al principio vamos a ser lentos, seguramente al principio si salimos a correr por primera vez no llegaremos muy lejos. Pero debemos estar dispuestos a ser los novatos, a comenzar desde abajo y a no desanimarnos al cometer errores como cualquier principiante. Si no puedes correr, como yo no pude, caminar es otra opción que no debemos subestimar. 
+Volviendo al deporte; yo digo que, todos somos deportistas es solo que algunos estamos más oxidados que otros. Es cuestión de retomarlo con humildad. No pienses que no es algo para tí. Como cualquier cosa, al principio vamos a ser lentos, seguramente al principio si salimos a correr por primera vez no llegaremos muy lejos. Pero debemos estar dispuestos a ser los novatos, a comenzar desde abajo y a no desanimarnos al cometer errores como cualquier principiante. Si no puedes correr, como yo no pude, caminar es otra opción que no debemos subestimar. De hecho si no corres habitualmente yo recomiendo que empieces caminando un par de semanas, no es tan glamuroso pero es efectivo. 
 
 Es fácil sentirse desmotivados al pensar que no seremos los mejores en algo. Hasta parece que sería una perdida de tiempo intentarlo, y es más sencillo darnos por vencidos y solo creer que *"eso no es lo mío."* Todo por miedo ( flojera ) a ser novatos.
 
 > El mayor error que podrías cometer es tener demasiado miedo para cometer uno.
 
-## Y para que correr? 
+##  ¿Y para que correr? 
 
 Pues, sin importar la motivación inicial, hacer algún deporte aeróbico como correr, ciclismo, o natación de manera constante, trae consigo grandes beneficios.
 
@@ -59,7 +58,7 @@ Pues, sin importar la motivación inicial, hacer algún deporte aeróbico como c
 
 Después de una corrida en la fría madrugada o en el *picante* sol del mediodia; el resto del día parece mantequilla. De pronto pareciera que las cosas difíciles del día ya no son tan difíciles. **Eres tu volviendote más fuerte.** Situaciones que antes resultaban irritantes, de pronto ya no tienen tanta importancia. El entrenamiento sorpresivamente no es solo para competencias, comienzas a notar como tus nuevas capacidades aplican en otras areas de tu vida.
 
-### Estructúrate
+### Estructúrate.
 
 El deporte a traído consigo la necesidad de establecer una rutina. Ahora en epoca de COVID donde ahora mi cuarto también es mi oficina, las libertades y a su vez las responsabilidades han aumentado. Ahora puedes despertarte 5 minutos antes de tu hora de entrada y hacer *"check-in"* desde tu cama. Irónicamente despertarme más temprano para correr 5km se ha convertido en todo un ritual vigorizante. Tengo que planear a que hora voy a correr, de manera colateral acelera mis otras tareas y me mantiene enfocado para asegurarme de que **haré tiempo para salir a correr.** Tambíen tengo que dormir temprano para poder correr al día siguiente.
 
@@ -68,15 +67,31 @@ El deporte a traído consigo la necesidad de establecer una rutina. Ahora en epo
 ### Obtén significado.
 
 No es la comodidad, el placer, o los excesos como *empedar* los fines de semana, desvelarse, jugar videojuegos o ver Netflix, lo que me ha dado satisfacción a largo plazo. Y por más tiempo del que quisiera, mis tiempos libres fueron ocupados principalmente por ese tipo de actividades. 
-El estar corriendo de manera habitual ha redireccionado y modificado mis comportamientos. Mis hábitos han cambiado, algunas actividades se han restringido/reducido y otras se han eliminado. Simultáneamente nuevas conductas positivas han sido adoptadas. Aún veo peliculas ocasionalmente, tomo la *cerveza social*, ya no juego videojuegos (lo más adictivo que he experimentado) pero, a cambio de estos sacrificios estoy mejor que antes. No digo que el deporte por sí solo es responsable de tantos cambios pero sin duda, ha contribuído de manera importante. Ha enriquecido y expandido mi vida a nuevas dimensiones que antes no conocía. No pienso dejar de correr pronto y si se me permite; quiero seguir explorando y disfrutando del deporte de manera indefinida. 
+El estar corriendo de manera habitual ha redireccionado y modificado mis comportamientos. Mis hábitos han cambiado, algunas actividades se han restringido/reducido y otras se han eliminado. Simultáneamente nuevas conductas positivas han sido adoptadas. Aún veo peliculas ocasionalmente, tomo la *cerveza social*, ya no juego videojuegos (lo más adictivo que he experimentado) pero, a cambio de estos sacrificios estoy mejor que antes. No digo que el deporte por sí solo es responsable de tantos cambios pero sin duda, ha contribuído de manera importante. 
 
-He encontrado en el deporte un nuevo pilar que soporta mi existencia. 
+Es como una máquina expendidora en la que yo le meto sacrificio y esfuerzo y a cambio obtengo satisfacción sostenible de larga duración.
 
->El deporte es como una máquina expendidora en la que yo le meto sacrificio y esfuerzo y a cambio obtengo satisfacción sostenible de larga duración.
+### Vives el doble.
 
-### Viajar a competencias
+No me refiero a que te vuelves más saludable, aunque eso también es cierto. 
 
-La idea de viajar a un lugar chidito con amigos para participar en un evento es muy emocionante. ¿No tienes amigos que quieran acompañarte en la aventura? Por más que intentemos influenciar a nuestro círculo cercano a que se unan al deporte, solo tendrá efecto en las personas que lo decidan por si mismas. Sin abandonar a los que no te sigan, pronto conocerás de quienes aprender y con quienes compartir experiencias.
+Cuando acabé mi carrera universitaria y entré a trabajar, al principio me abrumé porque parecía como si el trabajo fuera a ser lo que iba a ser por el resto de mis días. 
+
+Mi rutina basicamente en ese momento era: ir a trabajar, consumir dopamina barata (netflix/redes sociales/videojuegos), chelear el fin de semana y repetir. 
+
+Como resultado me daban unas *"crisis existenciales"* y no dejaba de preguntarme, ¿Qué es esto??, ¿¡Dónde esta la salida!?
+
+Estaba estancado. 
+
+Esa ansiedad que me perseguía era **el potencial dentro de mi siendo desperciado.**
+
+Correr en las mañanas, aprovechar las tardes para ir a nadar, y las mañanas en fines de semana para correr en el parque con mi novia han agregado una nueva dimensión a mi vida. El trabajo sin dejar de ser algo muy importante, ya no parece ocupar el escenario principal, ahora lo veo como una herramienta que me permite perseguir mis metas y creo que es la manera correcta de verlo. Ahora entiendo que no es requisito *"amar"* mi trabajo (aunque ayuda que lo disfrutes).
+
+He encontrado en el deporte un nuevo pilar que soporta y **enriquece** mi existencia. 
+
+### Viajar a competencias.
+
+La idea de viajar a un lugar chidito con amigos para participar en un evento es muy emocionante. ¿No tienes amigos que quieran acompañarte en la aventura? Por más que intentemos influenciar a nuestro círculo cercano a que se unan al deporte, solo tendrá efecto en las personas que lo decidan por si mismas. Sin abandonar a los que no te sigan, pronto conocerás de quienes aprender y con quienes compartir nuevas experiencias.
 
 ## Un salto de fe.
 
