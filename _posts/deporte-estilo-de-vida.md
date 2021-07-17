@@ -75,7 +75,7 @@ Es como una máquina expendidora en la que yo le meto sacrificio y esfuerzo y a 
 
 No me refiero a que te vuelves más saludable, aunque eso también es cierto. 
 
-Cuando acabé mi carrera universitaria y entré a trabajar, al principio me abrumé porque parecía como si el trabajo era ahora lo que iba a ser por el resto de mis días. 
+Cuando acabé mi carrera universitaria y entré a trabajar, al principio me abrumé porque parecía como si el trabajo era ahora lo que iba a hacer por el resto de mis días. 
 
 Mi rutina básicamente en ese momento era: ir a trabajar, consumir dopamina barata (Netflix/redes sociales/videojuegos), chelear el fin de semana y repetir. 
 
@@ -83,7 +83,7 @@ Como resultado me daban unas *"crisis existenciales"* y no dejaba de preguntarme
 
 Estaba estancado. 
 
-Esa ansiedad que me perseguía era **el potencial dentro de mi siendo desperciado.**
+Esa "ansiedad" que me atormentaba era **el potencial dentro de mi siendo desperdiciado.**
 
 Correr en las mañanas, aprovechar las tardes para ir a nadar, incluso las mañanas en fines de semana para correr en el parque con mi novia, han agregado una nueva dimensión a mi vida. El trabajo sin dejar de ser algo muy importante, ya no parece ocupar el escenario principal, ahora lo veo como una herramienta que me permite perseguir mis metas y creo que es la manera correcta de verlo. Ahora entiendo que no es requisito *"amar"* mi trabajo (aunque ayuda que lo disfrutes).
 
@@ -95,7 +95,7 @@ La idea de viajar a un lugar chidito con amigos para participar en un evento es 
 
 ## Un salto de fe.
 
-La razón principal de por qué escribo esto es para alentarte a tí que estas leyendo esto **NO** a que adoptes el deporte como estilo de vida, pero simplemente a que hagas deporte. (O si ya haces deporte, a que sigas haciéndolo.) No es necesario que hagas el gran compromiso de "adoptar el deporte como estilo de vida". (Ahora que lo escribo me doy cuenta que debería cambiar el título.) De todas formas, no esta claro que significa "adoptar el deporte como estilo de vida" pero suena como algo comprometedor y difícil. No tienes que hacerlo así, basta con hacer **algo** que te mueva, comienza con una actividad pequeña la cual estés dispuesto a repetir de manera constante. El progreso incremental hará se cargo del resto. 
+La razón principal de por qué escribo esto es para alentarte a tí que estas leyendo esto **NO** a que adoptes el deporte como estilo de vida, pero simplemente a que hagas deporte. (O si ya haces deporte, a que sigas haciéndolo.) No es necesario que hagas el gran compromiso de "adoptar el deporte como estilo de vida". (Ahora que lo escribo me doy cuenta que debería cambiar el título.) De todas formas, no esta claro que significa "adoptar el deporte como estilo de vida" pero suena como algo comprometedor y difícil. No tienes que hacerlo así, basta con hacer **algo** que te mueva, comienza con una actividad pequeña la cual estés dispuesto a repetir de manera constante. El progreso incremental se encargará del resto. 
 
 >Todas las grandes cosas tienen pequeños comienzos.
 
